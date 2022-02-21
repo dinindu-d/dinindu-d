@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @dinindu-d
+- 👀 I’m interested in computer programming
